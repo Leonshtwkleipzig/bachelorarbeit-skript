@@ -1,0 +1,1 @@
+# bachelorarbneit-skript
